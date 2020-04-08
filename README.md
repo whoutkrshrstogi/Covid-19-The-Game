@@ -4,4 +4,6 @@ Working on a solution to solve is important but spreading awareness is also impo
 Kindly please help us in this time of hardship and let us unite to beat the COVID-19 together.
 
 
-official link- https://helpwithcovid.com/projects/569-covid-19-the-game
+Official link- https://helpwithcovid.com/projects/569-covid-19-the-game
+
+Official Slack Channel- https://join.slack.com/t/covid19-0qs5274/shared_invite/zt-dlec2wvk-W4~HepMD~8XgUAxZFPDyVg
