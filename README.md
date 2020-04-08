@@ -5,4 +5,5 @@ Kindly please help us in this time of hardship and let us unite to beat the COVI
 
 
 Official link- https://helpwithcovid.com/projects/569-covid-19-the-game
+
 Official Slack Channel- https://join.slack.com/t/covid19-0qs5274/shared_invite/zt-dlec2wvk-W4~HepMD~8XgUAxZFPDyVg
